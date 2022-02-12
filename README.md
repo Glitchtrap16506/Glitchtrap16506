@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Glitchtrap16506
+- I am only here for fun dont mind me
